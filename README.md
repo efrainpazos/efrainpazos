@@ -12,7 +12,7 @@ Soy una persona proactiva, capaz, orientada a resultados y dinámica. Me gradué
 
 📫 Cómo contactarme:
  
-[Puedes encontrarme en LinkedIn].(www.linkedin.com/in/jose-efrain-pazos-viladegut-17692116a).
+- Puedes encontrarme en LinkedIn (www.linkedin.com/in/jose-efrain-pazos-viladegut-17692116a).
 
 O enviarme un correo electrónico a efrainpazos@gmail.com
 
