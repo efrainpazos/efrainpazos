@@ -1,6 +1,6 @@
 ### ¡Hola! 👋 Soy Efraín Pazos
 
-Soy una persona proactiva, capaz, orientada a resultados y dinámica. Me gradué en Ingeniería Industrial de la Universidad de Lima y tengo aproximadamente 3 años de experiencia como administrador de proyectos, gerente y analista de datos. He trabajado en aspectos como evaluación financiera, gestión de personal, implementación de proyectos y análisis de datos. Creo firmemente que el éxito se cultiva a través de la adopción de hábitos orientados a metas.
+Soy una persona proactiva, capaz, orientada a resultados y dinámica. Me gradué en Ingeniería Industrial de la Universidad de Lima y tengo aproximadamente 3 años de experiencia como administrador de proyectos, gestor de procesos y analista de datos. He trabajado en aspectos como evaluación financiera, gestión de personal, implementación de proyectos y análisis de datos. Creo firmemente que el éxito se cultiva a través de la adopción de hábitos orientados a metas.
 
 🔭 Actualmente estoy trabajando en: SiderPeru-Gerdau.
 
